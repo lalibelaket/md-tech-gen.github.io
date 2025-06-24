@@ -1,1 +1,0 @@
-# md-tech-gen.github.io
